@@ -1,1 +1,1 @@
-# https://hackerman.cf
+# https://hackerman.lt
